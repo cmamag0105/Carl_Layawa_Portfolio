@@ -1,3 +1,5 @@
+
+
 # 👋 Hi, I'm Carl Rommel Layawa
 
 🎓 **Licensed Electrical Engineer** with hands-on experience in estimation, drafting, and administrative support.  
@@ -23,3 +25,10 @@
 - Process automation and efficient task management
 
 ## 📫 How to Reach Me
+- 📧 Email: clayawa1@gmail.com  
+- 📍 Location: Iligan City, Philippines  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/carl-layawa-1b640a179)
+- 📱 Contact: +639205286524
+
+
+
