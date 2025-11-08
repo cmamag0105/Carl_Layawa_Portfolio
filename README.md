@@ -12,6 +12,7 @@
 - ✉️ Strong written communication and procurement coordination
 
 ## 💼 Work Experience
+- **Remote Estimator/Administrative Assistant** – Freelance (June 2023-Present)
 - **Assistant Control Room Operator** – Pilmico Food Corporation (Feb 2020–Jun 2020)
 - **Safety Engineer** – MCBC (May 2019–Jan 2020)
 - **Mechanic/Firewatch** – Holcim Philippines Inc. (May 2017–Nov 2017)
@@ -27,7 +28,7 @@
 ## 📫 How to Reach Me
 - 📧 Email: clayawa1@gmail.com  
 - 📍 Location: Iligan City, Philippines  
-- 🔗 [LinkedIn](https://www.linkedin.com/in/carl-layawa-1b640a179)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/carl-layawa-0194hj/)
 - 📱 Contact: +639205286524
 
 
