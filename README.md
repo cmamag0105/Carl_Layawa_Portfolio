@@ -12,7 +12,7 @@
 - ✉️ Strong written communication and procurement coordination
 
 ## 💼 Work Experience
-- **Remote Estimator/Administrative Assistant** – Freelance (June 2023-Present)
+- **Electrical Estimator/Technical Support** – Freelance (Feb 2023-Present)
 - **Assistant Control Room Operator** – Pilmico Food Corporation (Feb 2020–Jun 2020)
 - **Safety Engineer** – MCBC (May 2019–Jan 2020)
 - **Mechanic/Firewatch** – Holcim Philippines Inc. (May 2017–Nov 2017)
